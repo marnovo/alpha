@@ -1,3 +1,3 @@
 # alpha
 
-I am the alpha—still waiting for the omega.
+I am the alpha—still waiting for the omega...
